@@ -1,6 +1,6 @@
 # ISIS3510-Team-Wiki
 
-Welcome to the Team 15 Wiki!
+Welcome to the Team 32 Wiki!
 
 
 # Quick Links
